@@ -1,2 +1,2 @@
 # infa_2021_sultan
-ggggggggggggggggggggfffffffffffffffffffaaaaaaaaaaaaaaa ya ustal
+ok
